@@ -1,5 +1,5 @@
 # Induction-program
-Armaanpreet singh
+Armaanpreet singh (EE)
 # Day -1 30 july 2025
 Induction program was started with path in college gurudwara sahib. Then there is arrangement for tea and snacks for students and teachers. At 11:00 am inauguration ceremony was start firstly our college principal was invited to welcome students and then HoD of applied science department introduce herself. After that with senior students and our teachers we visited our department. 
 # Day-2 
